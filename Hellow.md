@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DeLian02
+- 👋 Hi, I’m Made Rizal Aprilian
 - 👀 I’m interested in Photography/Videography
 - 🌱 I’m currently learning Html
 - 💞️ I’m looking to collaborate on ...
